@@ -1,0 +1,5 @@
+is it evil to leave it running if you dont know what its gonna do, regardless of actual effects????????????
+
+like leaving a helicopter running forever with infinite fuel??????????????
+just sitting on the ground for some reason?
+I WOULD DO THIS ANYWAY.
