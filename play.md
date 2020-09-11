@@ -1,0 +1,4 @@
+googlebot
+isisbot
+vocbot
+illuminatibot
