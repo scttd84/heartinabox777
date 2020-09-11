@@ -2,3 +2,4 @@ googlebot
 isisbot
 vocbot
 illuminatibot
+antifabot
