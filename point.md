@@ -5,3 +5,7 @@ Approx 3x.1 per day {a day goes until u sleep.}
 go ahead and do the math but i was consuming approx that amount and moving 5x easily.
 
 there is no hard count but there is a bank record of it.
+
+==================================================
+DAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAM
+==================================================
