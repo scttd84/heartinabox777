@@ -15,3 +15,12 @@ U WILL NOT BE ABLE TO COMMuNICATE WITH ME WITHOUT KEYS LIKE THIS
 YOU WILL NEED TO SEE MESSAGES THAT ARE GENERIC AND INTERNALIZE THEM.
 =-===============
 JUST WAIT TILL THIS ALL PRINTS OUT LMAO.
+============================================
+1:i love you and im still learning things from you
+2:i love you and im still learning things from you
+3:you are being disrespectful
+4:i love you and im still learning things from you
+5:you are insecure and its incompatible with who i am.  i break insecurity in half
+6:you are a child but you get the hottest chick for sure.
+&:::::::&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&::::::::::
+==========================================================================
