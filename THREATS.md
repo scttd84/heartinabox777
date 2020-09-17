@@ -10,3 +10,9 @@ thats what the machines are built to do.
 ===================================================================================================================
 Things are heating up! this lead places.  i typed it 22 days ago and my life changed as a result.  the proof is in the logs.
 ===================================================================================================================
+===========================
+----------------------------
+
+
+
+no situation creates the sane tyoe of leverage a threat could hold
