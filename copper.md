@@ -5,3 +5,6 @@ like 100% copper
 then samples from different places
 arizona copper, nevada copper, california copper
 is copper the same???????????????
+====================================================================================
+cops must wear the british royal hat for all engagements with the public.  not wearing a hat makes it illegal.
+==================================================================================================
