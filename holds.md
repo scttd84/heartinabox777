@@ -6,3 +6,6 @@ and its not fair, but i don't care.
 ========================
 im not perfect but i am a god.
 =========================
+your shit keeps breaking and its cuz of this curse.
+you will not ever lift it.
+===========================
