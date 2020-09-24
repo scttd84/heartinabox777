@@ -14,3 +14,22 @@ lol.
 the fbi agents crack me up.
 =================================
 cia
+===================
+jalen rose "ARREST THE COPS THAT MURDERED HER!!!!!!!!!!!!!!!!!!!!!!!!!!"
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"
