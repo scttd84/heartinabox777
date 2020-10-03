@@ -22,3 +22,13 @@ yes, timeless xxx vapen vs vapen clear
 =============================================
 TIMELESS BATCH PROCESS MACHINE.
 ==============================================
+this is already lost bot condensed.  i already considered this obviously when i arrived back to this page.
+i suspect many thoughts are locked up in these keywords and i am condensing on certain notes.
+==============================================
+i arrived here with cherry limeade and ice cream cookies
+----------------------------------------------
+44.65 i believe was the dollareage.d
+-------========================================================================================
+lost begin season 3 log need to condence and continue prompting over episodes
+the actual situations do not matter =it just needs to be time based situations.
+=-====================================================================================================
