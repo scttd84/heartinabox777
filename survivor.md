@@ -1,0 +1,1 @@
+ok on the tv show, now the plot lines are that they try to do crazy shit on the show to get them to chase the end of the show.  like go on a run and shit.  grab shit idk.  TERROR ENEDS TO ENTER THE GAME LIKE ON LOST DUDE
